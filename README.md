@@ -1,4 +1,13 @@
 # charlie-comes-first
-charlie comes first -->> http://www.charliecomesfirst.com/
 
-![](http://images.cdbaby.name/a/r/artificalhappiness2.jpg)
+The Band
+
+Lord Killing Ling: Lead vocals
+Baron Misha: Lead guitar
+Kill Switch: Drums
+Sporty: Bass
+Baby Man: Keyboards
+
+![](http://www.charliecomesfirst.com/images/band_02.png)
+
+learn more -->> http://www.charliecomesfirst.com/
